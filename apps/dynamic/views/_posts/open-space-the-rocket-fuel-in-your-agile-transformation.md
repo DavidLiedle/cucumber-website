@@ -69,3 +69,5 @@ Feedback:
 I am specially pleased that my presentation went down really well with some important people, and I am now helping to design some in-house experimentation around continuous improvement initiatives."
 
 "Super two days, great format and fantastic outcome. People talking collaborating and sharing ideas. Thank you, thankyou, thank you!!"
+
+https://www.youtube.com/watch?v=337ibHDA7gU
